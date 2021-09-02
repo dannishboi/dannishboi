@@ -6,4 +6,4 @@
 ### -🖥️ I spend a good amount of my time on discord and/or streaming on my [twitch](^https://www.twitch.tv/dang_daniboi^)
 ### -📫 If you ever need to contact me, send me a message on [discord](^https://discordapp.com/users/415663644991553536/^)
 
-i am also working towards a project which is hopefully going to turn out pretty funny - one word to describe it : rick 😂 \
+*i am also working towards a project which is hopefully going to turn out pretty funny - one word to describe it : rick 😂*
